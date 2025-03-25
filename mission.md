@@ -1,1 +1,1 @@
-Team lead: Shadreck SokoTeam lead: Hannah Tikulirekuti Mwale
+Team lead: Hannah Tikulirekuti Mwale 
